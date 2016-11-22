@@ -10,3 +10,13 @@ Did you really just create a repo to invite me to hang out?
 [ML] I know. Right?!
 
 ## I hate all of you.
+
+(╯°□°)╯︵ ┻━┻
+
+┻━┻ ︵ ╯(°□° ╯)
+
+┻━┻ ︵╰(゜Д゜)╯︵ ┻━┻
+
+(ﾉಥ益ಥ）
+
+[AL] (/ .□.)\ ︵╰(゜Д゜)╯︵ /(.□. \) [RB]
