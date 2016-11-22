@@ -9,6 +9,8 @@ Did you really just create a repo to invite me to hang out?
 
 [ML] I know. Right?!
 
+[MP] Stating for the record, I said this was super nerdy, but awesome.  Props to Monicer.
+
 ## I hate all of you.
 
 (╯°□°)╯︵ ┻━┻
