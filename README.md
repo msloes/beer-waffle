@@ -19,4 +19,4 @@ Did you really just create a repo to invite me to hang out?
 
 (ﾉಥ益ಥ）
 
-[AL] (/ .□.)\ ︵╰(゜Д゜)╯︵ /(.□. \) [RB]
+(/ .□.)\ ︵╰(゜Д゜)╯︵ /(.□. \)
