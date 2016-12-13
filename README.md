@@ -22,3 +22,5 @@ Did you really just create a repo to invite me to hang out?
 (ﾉಥ益ಥ）
 
 (/ .□.)\ ︵╰(゜Д゜)╯︵ /(.□. \)
+
+[MP] For real... let's do something with this information.  It was a funny idea, but somebody other than me has to put something on the calendar... or I guess I can do it again.
