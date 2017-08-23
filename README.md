@@ -7,5 +7,3 @@ Starting this over. Where we going? I'm also proposing September 5th. Day after 
 | Ryan    |  |  |
 | Matt    | Most nights except Thursday. | Stanley's NE? |
 | Monica  |  |  |
-|:----------:|:-------------:|:------:|
-
